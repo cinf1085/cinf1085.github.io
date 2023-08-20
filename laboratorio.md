@@ -1,0 +1,3 @@
+# hider 1
+## Las caricaturas han evolucionado a lo largo de los siglos. Desde sus orígenes en Italia en el siglo XV, pasando por su auge en Inglaterra y Francia en los siglos XVIII y XIX, hasta su consolidación como medio de entretenimiento y crítica social en el siglo XX. Algunos hitos importantes son el debut de Mickey Mouse en 1928 y la popularización de los dibujos animados japoneses (anime) en todo el mundo en la década de 1990. Las caricaturas han inspirado a muchos artistas y han influido en la cultura popular.
+![Caricatura](https://th.bing.com/th/id/R.ea8ab89a64f776833c941731fc27617f?rik=RABf6jwpB3sLtw&pid=ImgRaw&r=0)
